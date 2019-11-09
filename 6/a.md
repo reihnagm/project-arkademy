@@ -1,0 +1,1 @@
+![alt text](https://github.com/reihnagm/project-arkademy/blob/master/6/ss.png)
